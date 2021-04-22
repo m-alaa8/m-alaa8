@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Customer Success Specialist
+![](https://upload.wikimedia.org/wikipedia/commons/0/03/Hostinger_Logo.png)
+
